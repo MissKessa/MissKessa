@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Paula Díaz
+- 👋 Hi, I’m Paula Díaz and my other account is UO294067
 - 👀 I’m interested in programming, drawing, videogames and artificial intelligence
 - 🌱 I’m currently learning how to sleep when you are a programmer
 - 📫 How to reach me by email: paula.diazalv@gmail.com
